@@ -5,3 +5,7 @@
  $${\color{#E4A0F7}\text{HIHI!! I'm Luna!! And I'm so excited to meet you!!}}$$
 
 <img align="left" width="300" src="https://github.com/LaLunaTheMoonlight/LaLunaTheMoonlight/blob/257c6851126ef41e8333ac244e8a6d6b97f9ba19/moe%202.jpg">
+
+<img align="left" width="500" src="https://github.com/LaLunaTheMoonlight/LaLunaTheMoonlight/blob/bd85561c8a2eab51c3edc8b21dbf0b5a1e1da3df/moe-regect-arg.gif">
+
+<img align="left" width="500" src="https://github.com/LaLunaTheMoonlight/LaLunaTheMoonlight/blob/bd85561c8a2eab51c3edc8b21dbf0b5a1e1da3df/moe-regect-arg.gif">
