@@ -10,6 +10,6 @@
 
 <img align="right" width="300" src="https://github.com/LaLunaTheMoonlight/LaLunaTheMoonlight/blob/58ce8b8cb85d705f26c1a87fa41f33bf32a22d71/cute-monella-aregect-moe-areject.gif">
 
-$${\color{#E4A0F7}\text{Things I love: Singing, Drawing, Minecraft ARG's, And gaming ofccc!!}}$$
+$${\color{#E4A0F7}\text{Things I love: Singing, Listening to music, Drawing, Minecraft ARG's, And gaming ofccc!!}}$$
 
 $${\color{#E4A0F7}\text{I do follow the basic DNI's so please keep that in mind!!}}$$
